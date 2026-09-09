@@ -6,4 +6,4 @@ Yazılarımı Github'da barındırıyorum, Depo hesabımda -----------
 
 m. kadir
 
-mertkadircataloglu[at]protonmail.com
+eposta: mertkadircataloglu[at]protonmail.com
