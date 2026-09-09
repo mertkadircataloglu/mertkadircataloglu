@@ -3,4 +3,3 @@ esasen özgür olan kimdir, diye sormadan edemiyorum. hızlıca özgür olan ki�
 hayata iyisiyle ve kötüsüyle diyerek baktığımda, aygıtlarda yer bulamayan kişi güdümsüzlüğe koşabilir ancak sonucunda insanca değerlerin uzağında kalem tutamayacak fiziki güçten düşecektir.
 
 m. kadir
-mertkadircataloglu.org
