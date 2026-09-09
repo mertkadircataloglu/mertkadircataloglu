@@ -5,4 +5,5 @@ hayata iyisiyle ve kötüsüyle diyerek baktığımda, aygıtlarda yer bulamayan
 Yazılarımı Github'da barındırıyorum, Depo hesabımda -----------
 
 m. kadir
+
 mertkadircataloglu[at]protonmail.com
