@@ -1,0 +1,3 @@
+Hadi diyordum, bu seferlik derin bir nefes almakla yetinemez miyim, faillerin yüzlerine bakarken, faillerin dışında olanlar işlemedikleri suçlar için azap için kurban edilirken, faillerin hıncından kör gözüyle evreni kılıçtan geçirmek istediği, nefretinden değer inşa etmeye kalkıp inşasının altında ezilen
+
+Bir salon dolusu aptalın algı kıtlığı ve bir dünya dolusu aptalın algı kıtlığına sövdükten, bu kadar aptalın algı kıtlığını sivrilmek için kurduğu düzeneklere, yürüyüşe çıktığım kurtuluş parkında gruba rast geldiğimde neden aptallıklarını yüzlerine sövmediğimi düşünürken, bir salon dolusu aptalın rüküş yarışması düzenlemesi
