@@ -1,0 +1,5 @@
+Her katil ölür de, sanki mirası devir alacak yeni çoğullar çıkmaz mı, katil ölür de gözyaşları öldürülene değil katile minnetten akmaz mı, tarihten silindi denilenler hortlamak için zaman saymıyor mu veya baştan beri hiç silinmediler mi, şimdi sadece Kurtuluş Parkındaki yürüyüşümün bir salon dolusu çakal ile aynı havayı solumaktan daha kıymetli olduğunu düşünüyorum.
+----------------------
+Tek başına yüce devletler kadar yayılmacı, devlet aygıtlarının yokluğunun acısını eline o anda ne geçerse ontolojik saldırı için kullanan
+------------------------
+Varoluşun anahtarı olarak saymış oldukları kavramları dinliyordum, bir an olsun ki gerçekten umursamalarını ister miydim diye kendime sormaya zaman kalmadan, bir şeyin uğruna diğer bir şeyden bir kez daha cayıldığını ve neden bunun bir kaçış olmadığını, neden zaten hayatın da kusursuz olmadığı, yapıldıysa yapıldığı, ötekiler gibi de olmadığını, geçmişte ötekilerden çok çekmiş olduklarını, bu sefer toptan huzura ereceklerini, geçmişte yapılanlara karşın ötekilerin çoktan beri her şeyi hak ettiğini dinleyip duruyordum, vardiya nöbetini devir almaya gelen yeni arkadaştan.

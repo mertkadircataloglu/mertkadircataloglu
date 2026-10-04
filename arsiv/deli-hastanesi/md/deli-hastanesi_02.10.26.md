@@ -1,0 +1,1 @@
+Tek anahtar sözcüğe kafa kesmenin 

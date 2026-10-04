@@ -1,0 +1,1 @@
+Eğrisi doğrusu olmayan, ne versen onu kabul edecek bir salon dolusu insan, dikkatimi çekti, ortaya koyulan yıkımın her seferinde elini yükselten, katliam borçlanan, günün sonunda aklayamayacağı hiçbir şeyi olmayan
